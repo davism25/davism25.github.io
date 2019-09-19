@@ -1,7 +1,7 @@
 # Time is Money
 
-## Knowledge
+## Hunger For Knowledge
 
-### Life 
+### Life Long Goal 
 
 

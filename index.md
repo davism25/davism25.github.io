@@ -5,4 +5,3 @@
 ### Life Long Goal 
 
 ![Church](Church.jpg)
-

@@ -1,7 +1,7 @@
-
-#Time is Money
+# Time is Money
 
 ## Knowledge
 
-###Life
+### Life 
+
 

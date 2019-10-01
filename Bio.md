@@ -19,11 +19,10 @@
 
 **Links and Resources**
 
-[My Main Page](davism25.github.io)
+[My Main Page](https://davism25.github.io/)
 
 A good photo example called [The Richest Man In Babylon](https://www.pinterest.ph/pin/490470215649613206/)
 
 #### References 
 
 + Pinterest [linked](https://www.pinterest.ph/pin/490470215649613206/) address on photo unavailable, original source unknown.
-

@@ -4,7 +4,7 @@
 
 ### Life Long Goal 
 
-Take a look at my [Bio](davism25.github.io/Bio.md)
+Take a look at my [Bio](Bio)
 
 ![Church](Church.jpg)
 

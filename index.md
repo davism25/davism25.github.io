@@ -1,6 +1,6 @@
 # Time is Money
 
-## [Hunger For Knowledge](davism25.github.io/Bio.md)
+## [Hunger For Knowledge](davism25.github.io/Bio)
 
 ### Life Long Goal 
 

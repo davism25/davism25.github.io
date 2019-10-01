@@ -19,7 +19,7 @@
 
 **Links and Resources**
 
-[My Main Page](https://davism25.github.io/)
+[Home](https://davism25.github.io/)
 
 A good photo example called [The Richest Man In Babylon](https://i.pinimg.com/originals/d6/c1/b1/d6c1b1862e5068f20b8eda0a4742871f.jpg)
 

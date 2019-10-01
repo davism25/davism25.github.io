@@ -4,7 +4,7 @@
 
 ### Life Long Goal 
 
-Take a look at my [Bio](Bio)
+Take a look at my [Bio](Bio) or my [Finance](Topic) page
 
 ![Church](Church.jpg)
 

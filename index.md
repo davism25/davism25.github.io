@@ -2,7 +2,7 @@
 
 ## [Hunger For Knowledge](Bio)
 
-### Life Long Goal 
+### [Life Long Goal](topic)
 
 Take a look at my [Bio](Bio) or my [Finance](topic) page
 

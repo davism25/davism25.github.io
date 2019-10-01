@@ -1,6 +1,6 @@
 # Time is Money
 
-## [Hunger For Knowledge]
+## [Hunger For Knowledge](bio.md)
 
 ### Life Long Goal 
 

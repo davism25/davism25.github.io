@@ -33,7 +33,7 @@ I touched a little on steps to building your finance for just starting out, thou
 
 ###### Thanks for reading and spend wisely. 
 
-[Home](index)
+[Home](https://davism25.github.io/)
 
 Take a look at a picture of Guam and Tokyo from a couple of trips.
 

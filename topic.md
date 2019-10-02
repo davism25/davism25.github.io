@@ -23,6 +23,9 @@ You took your steps and you never went into the red or got yourself out of the r
 
 When your getting into building your savings, your building for the future and should always strive to gain more and make you money make you more. How you ask? You ask multiple banks or credit unions, what savings and certificates do you have? Once you compile those lists compare each for the time you can afford to have the money tied up if at all or what kind of savings at which place offer the best rates with the requirement that you can meet. One kind is a money market savings, often confused with a mutual fund but they are not the same. A money market savings is exactly what it is called in the name, a savings account with just a higher minimum balance that gives your more than triple the rate of a standard savings.
 
+#### Savings Goal
+
+In building to you savings in what ever form that may take with certificates or other ways, always remember to have goals set. The best made plans and budgets are those that help you get what you really want.
 
 
-![Alt text](43C27272-9BDC-4899-8511-25A9330812FD.jpeg) ![Alt text]()
+![Alt text](43C27272-9BDC-4899-8511-25A9330812FD.jpeg) ![Alt text](57B06F78-BBFB-483B-B534-BDE5D743AAAA.jpeg)

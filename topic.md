@@ -28,4 +28,7 @@ When your getting into building your savings, your building for the future and s
 In building to you savings in what ever form that may take with certificates or other ways, always remember to have goals set. The best made plans and budgets are those that help you get what you really want.
 
 
+
+Take a look at a picture of Guam and Tokyo from a couple of trips.
+
 ![Alt text](43C27272-9BDC-4899-8511-25A9330812FD.jpeg) ![Alt text](57B06F78-BBFB-483B-B534-BDE5D743AAAA.jpeg)

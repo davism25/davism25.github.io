@@ -20,6 +20,8 @@
    + Million Dollar sailor - finance course
    + Lean Six Sigma - Green Belt (business process improvement Certification)
 
+![Alt text]()
+
 **Links and Resources**
 
 [Home](https://davism25.github.io/)

@@ -27,7 +27,13 @@ When your getting into building your savings, your building for the future and s
 
 In building to you savings in what ever form that may take with certificates or other ways, always remember to have goals set. The best made plans and budgets are those that help you get what you really want.
 
+#### In Recap 
 
+I touched a little on steps to building your finance for just starting out, though it’s just the start of the information out there. 
+
+###### Thanks for reading and spend wisely. 
+
+[Home](davism25.github.io)
 
 Take a look at a picture of Guam and Tokyo from a couple of trips.
 

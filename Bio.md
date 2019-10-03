@@ -20,7 +20,7 @@
    + Million Dollar sailor - finance course
    + Lean Six Sigma - Green Belt (business process improvement Certification)
 
-![Alt text](887A64FF-209A-4748-B9E7-DC3597630F7B.jpeg)
+![Alt text](guam1.jpg)
 
 **Links and Resources**
 

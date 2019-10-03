@@ -35,6 +35,6 @@ I touched a little on steps to building your finance for just starting out, thou
 
 [Home](https://davism25.github.io/)
 
-Take a look at a picture of Guam and Tokyo from a couple of trips.
+Take a look at a picture of Guam and Tokyo from a couple of trips made possible by establishing savings goals.
 
-![Alt text](43C27272-9BDC-4899-8511-25A9330812FD.jpeg) ![Alt text](57B06F78-BBFB-483B-B534-BDE5D743AAAA.jpeg)
+![Alt text](tokyo.jpg) ![Alt text](guam2.jpg)
